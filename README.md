@@ -1,6 +1,5 @@
 ##                if you can Dream it you Can Do it
-![WhatsApp Image 2025-07-21 at 4 13 09 PM](https://github.com/user-attachments/assets/1c9edd48-3975-410a-9eea-b3000d8c5829)
-
+<img width="1672" height="941" alt="ChatGPT Image 18 سبتمبر 2026، 09_26_31 م" src="https://github.com/user-attachments/assets/5b56b237-cbf7-4236-8dd7-bcd6bae69d63" />
 
 <!--
 **dalia25maher/dalia25maher** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
